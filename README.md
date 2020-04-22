@@ -1,1 +1,0 @@
-# Windows-7-Tiny-Photos-Slide-Show-DL
